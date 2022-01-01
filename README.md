@@ -1,0 +1,2 @@
+# prakalgo12_Novika-Kompalintini_065001900039
+prakalgo12
